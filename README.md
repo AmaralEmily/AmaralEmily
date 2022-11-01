@@ -1,3 +1,3 @@
-- 👋 Olá, I’m @AmaralEmily
-- 👀 Estou interessada em aprender mais
+- 👋 Olá, I’m Emily
+- 👀 Estou interessada em aprender mais sobre a plataforma
 - 🌱 Estou apredendo no momento a tocar ukulele
